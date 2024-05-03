@@ -84,7 +84,7 @@ Netflix、Disney+等国外流媒体平台和ChatGPT解锁支持。
 
 #### 疾风云机场测速
 
-![image](https://github.com/VPN-Website/tizituijian/assets/153252983/82e1f34f-0ddb-4265-8004-f913f6280c76)
+![image](https://github.com/AlipJJ/Top5/assets/142561372/552169b0-9e9a-49d0-84b3-b1193b3f01e8)
 
 
 ### 2. 耐思云
